@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **ks.rahul0111@gmail.com**
 
-- : **It would not be easy but try to do it right!!!✌️**
+- 💬 **It would not be easy but try to do it right!!!✌️**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
